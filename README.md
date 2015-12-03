@@ -5,3 +5,4 @@ Vous trouverez ici les ressources mis à votre disposition dans le cadre de mes 
 Liste des étudiants :
 
 Quentin
+xXx TropDrakPowerOfDommLoLoLoLDu38650 killerTooStroink xXx (ou tranguy pour les intimes)
